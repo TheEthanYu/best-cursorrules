@@ -1,0 +1,2 @@
+# best-cursorrules
+best-cursorrules
